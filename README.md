@@ -3,7 +3,7 @@
    ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=Ɛ=3%20&color=5A0B0B&labelColor=300707)
 <div align="center">
   
-  ![image](https://github.com/user-attachments/assets/9d43e263-3e59-4130-b769-6fd6b5c195b2)
+  ![image](https://github.com/user-attachments/assets/d476c535-1f2d-4143-986c-7ec6792aca30)
   
   <div align="center">
 
