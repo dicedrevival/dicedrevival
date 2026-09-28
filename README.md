@@ -11,8 +11,8 @@
 
 ![image](https://github.com/user-attachments/assets/f420ccbb-bcc6-4608-bc6b-36b39130b81a)
 
-$$\textcolor{#8F1717}{pawn\ /\ gourdy}\ :\ \textcolor{#A52A2A}{she/him}\ \textcolor{#B83A3A}{any\ pronouns}\ .$$
-$$\textcolor{#C04A4A}{c+h}\ \textcolor{#B84A4A}{hvy}\ \textcolor{#AD4444}{enc}\ ,\ \textcolor{#A33D3D}{int}\ \textcolor{#984040}{freely}\ \textcolor{#8D3A3A}{unless}\ \textcolor{#813535}{name}\ \textcolor{#753030}{says}\ \textcolor{#692B2B}{otherwise}\ .$$
+$$\textcolor{#242424}{pawn\ /\ gourdy}\ :\ \textcolor{#4A4A4A}{she/him}\ \textcolor{#6A6A6A}{any\ pronouns}\ .$$
+$$\textcolor{#808080}{c+h}\ \textcolor{#8F8F8F}{hvy}\ \textcolor{#9E9E9E}{enc}\ ,\ \textcolor{#AAAAAA}{int}\ \textcolor{#B6B6B6}{freely}\ \textcolor{#C2C2C2}{unless}\ \textcolor{#CECECE}{name}\ \textcolor{#D9D9D9}{says}\ \textcolor{#E5E5E5}{otherwise}\ .$$
 
 </div>
 
