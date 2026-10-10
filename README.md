@@ -1,6 +1,6 @@
 <p align="center"
   
-   ![](https://github-view-counter.vercel.app/api?username=dicedrevival&base=1700&label=Ɛ%3D3&color=242424&labelColor=300707)
+   ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=Ɛ=3%20&color=242424&labelColor=300707)
    
 <div align="center">
   
