@@ -1,7 +1,8 @@
-<p align="center"
-  
-   ![Visitors](https://api.visitorbadge.io/api/daily?path=https%3A%2F%2Fgithub.com%2Ftragicomedyy&label=%CB%B6%CB%83%20%EF%BB%8C%20%CB%82%CB%B6&labelColor=%23000000&countColor=%23242424&style=flat-square&labelStyle=upper)
-   
+
+<p align="center">
+<a href="https://hits.sh/github.com/pantera-00/hits/"><img alt="Hits" src="https://hits.sh/github.com/pantera-00/hits.svg?label=angels&color=9f9f9f&labelColor=000000"/></a>
+</p>
+
 <div align="center">
   
   ![image](https://github.com/user-attachments/assets/ef97e4dc-faf4-414b-8f22-dea7d962070c)
