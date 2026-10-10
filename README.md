@@ -1,6 +1,6 @@
 <p align="center"
   
-   ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=Ɛ=3%20&color=242424&labelColor=300707)
+   ![](https://komarev.com/ghpvc/?username=tragicomedyy&label=🪽%20&color=242424&labelColor=300707)
 <div align="center">
   
   ![image](https://github.com/user-attachments/assets/ef97e4dc-faf4-414b-8f22-dea7d962070c)
