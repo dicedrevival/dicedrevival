@@ -10,7 +10,15 @@
 <summary>my f/o (husband) !</summary>
   
   ![image](https://github.com/user-attachments/assets/5ac184b7-0371-4e08-9ead-fbaf6261be4b)
+  
 ✦hi IM PAWN ;-;;; , and this is my husband guys say hi!! actually , meet Archangel Gabriel from Mandela Catalogue. (not the bible one, alot of people mistaken it was THE actual Gabriel.) and I'm voidsharing ok. I block: doubles , #1 fans (?) it depends on the person sometimes, and we've been together for 3 years now! everyone: we DON'T CARE ;-;; . and I ship my yumesona with Gabriel! Technically like a selfshipping (?) but not that similar. I'll add more ok
+
+![image](https://github.com/user-attachments/assets/ac3dddc3-f52d-447e-8c25-fa1a90dd6e14)
+
+
+![gif](https://github.com/user-attachments/assets/85adcb8c-6221-47c9-8acf-7545aef1d600)
+![image](https://github.com/user-attachments/assets/df7fbfc3-7938-4b1f-8dd6-4588f3e14efc)
+![image](https://github.com/user-attachments/assets/3db32cbc-0f3a-4166-9ea2-8cad66e573ef)
 
 </details>
 
