@@ -1,6 +1,6 @@
 
 <p align="center">
-<a href="https://hits.sh/github.com/pantera-00/hits/"><img alt="Hits" src="https://hits.sh/github.com/pantera-00/hits.svg?label=angels&color=9f9f9f&labelColor=000000"/></a>
+<a href="https://hits.sh/github.com/pantera-00/hits/"><img alt="Hits" src="https://hits.sh/github.com/pantera-00/hits.svg?label=candles&color=694329&labelColor=D3AB7C"/></a>
 </p>
 
 
