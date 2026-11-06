@@ -43,10 +43,8 @@
 
 </details>
 
-![image](https://github.com/user-attachments/assets/584573af-874e-4027-b35e-117ea928d330)
+![image](https://github.com/user-attachments/assets/ce27235b-a4af-4acc-ac27-f00e919ffb5e)
 
-![image](https://github.com/user-attachments/assets/55e657ef-de5b-428d-a3cc-97bd16fdb13a)
-
-![image](https://github.com/user-attachments/assets/582052fe-8bdf-424b-953e-6cb739b7ed1e)
+![image](https://github.com/user-attachments/assets/aded61d1-7765-4d9d-a8c9-dfe4312d5f06)
 
 <div align="center">
